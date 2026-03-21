@@ -47,11 +47,4 @@ Data Science Enthusiast
 
 ---
 
-## 📫 Contact
-
-Email: ag2929822@gmail.com  
-LinkedIn: https://www.linkedin.com/in/anurag-gupta007/
-
----
-
 ⭐ Feel free to explore and learn along with me!
